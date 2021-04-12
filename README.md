@@ -1,4 +1,4 @@
-### Heeeello amazing visitor 👽,
+### Heeeello amazing visitor 👽
 it's Richard here👋
 
 ## I'm a Junior Front-End Developer that wants to learn more magics skills 
