@@ -29,7 +29,7 @@ I AM CURRENTLY:
 <br />
 <br />
 
-### Fun fact  I love to code wrapped in a special blanket.🤫
+### Fun fact:  I love to code wrapped in a special blanket.🤫
 
 HOBBIES:
 
