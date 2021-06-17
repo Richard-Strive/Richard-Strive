@@ -1,7 +1,7 @@
 ### Heeeello amazing visitor 👽
 it's Richard here👋
 
-## I'm a Junior Front-End Developer that wants to learn more magics skills 
+## I'm a Junior Front-End Developer that wants to learn more magic skills 
 
 I AM CURRENTLY:
 
